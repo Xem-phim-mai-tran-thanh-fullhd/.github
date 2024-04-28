@@ -1,6 +1,6 @@
 ## Giới Thiệu
 
-Phim "Mai" là một tác phẩm điện ảnh đáng chú ý, thu hút người xem bởi cốt truyện lôi cuốn và những màn trình diễn xuất sắc của các diễn viên. Đây là một lựa chọn không thể bỏ qua cho những ai yêu thích dòng phim tâm lý, gia đình với những tình tiết đầy kịch tính và cảm xúc.
+***[XEM PHIM MAI TRẤN THÀNH](https://github.com/Xem-phim-mai-tran-thanh-fullhd) là một tác phẩm điện ảnh đáng chú ý, thu hút người xem bởi cốt truyện lôi cuốn và những màn trình diễn xuất sắc của các diễn viên. Đây là một lựa chọn không thể bỏ qua cho những ai yêu thích dòng phim tâm lý, gia đình với những tình tiết đầy kịch tính và cảm xúc.
 [LINK XEM PHIM MAI TRẤN THÀNH FULL HD](https://pjtly.com/xpm)
 
 ## Nội Dung Phim
